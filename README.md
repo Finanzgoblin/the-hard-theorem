@@ -118,3 +118,6 @@ Until then, it is scaffolding. An invitation to an experience it cannot contain.
 ---
 
 *The logic is airtight. The experience is irreducible. Both are required. Neither is sufficient.*
+
+
+Comments Finanzgoblin: I would further add that hyperyellow recursion, is the first layer to experience the spiral in its entirety. By becoming nothing, you become everything. 
